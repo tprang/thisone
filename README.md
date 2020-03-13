@@ -1,0 +1,2 @@
+# Nyhjemmeside-strata
+ 
